@@ -1,3 +1,3 @@
-Eyo 👀🍑
+eyoO 👀
 
-13 Y/o
+13 y/o who loves coding (humanly)
