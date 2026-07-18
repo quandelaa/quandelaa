@@ -5,10 +5,8 @@
 
 - pitt
 - gauss
-
 - poop ??
 
 ### STUFF
 
-- i like movies but am still a novice
-- i'm currently in the near end of breaking bad
+- i like movies but am still a beginner
