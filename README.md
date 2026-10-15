@@ -1,5 +1,6 @@
 get out of bed and do something
 
-### currently maintaining:
+recent side projects:
 - pitt
-- gauss
+- frik
+- strang
